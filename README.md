@@ -20,3 +20,4 @@ Python Certificate
 
 https://github.com/aswinimuvvala-mycertificate/Aswini-repository-/blob/main/IMG-20261026-WA0004.jpg
 
+Artificial intelligence certificate 
