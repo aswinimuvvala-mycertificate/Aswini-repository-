@@ -10,3 +10,4 @@ SSC MARKS MEMO
 
 https://github.com/aswinimuvvala-mycertificate/Aswini-repository-/blob/main/Screenshot_20261026-110350_WhatsApp.jpg
 
+INTER MARKS MEMO 
