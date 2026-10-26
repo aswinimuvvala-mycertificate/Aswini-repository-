@@ -5,3 +5,6 @@ About Me I am a B.Sc. Mathematics student at S.V.L.N.S GOVERNMENT DEGREE COLLEGE
 Education B.Sc. Mathematics —S.V.L.N.S GOVERNMENT DEGREE COLLEGE Affiliated by Andhra University
 
 ACADEMIC CERTIFICATES
+
+SSC MARKS MEMO
+
