@@ -7,4 +7,5 @@ Education B.Sc. Mathematics —S.V.L.N.S GOVERNMENT DEGREE COLLEGE Affiliated by
 ACADEMIC CERTIFICATES
 
 SSC MARKS MEMO
+https://github.com/aswinimuvvala-mycertificate/Aswini-repository-/blob/main/Screenshot_20261026-110350_WhatsApp.jpg
 
